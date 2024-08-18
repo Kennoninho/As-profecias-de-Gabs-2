@@ -1,1 +1,1 @@
-https://github.com/Kennoninho/As-profecias-de-Gabs-2
+(https://kennoninho.github.io/As-profecias-de-Gabs-2/)
